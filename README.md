@@ -7,3 +7,5 @@
 ## World of Computer
 
 ![Image](https://drive.google.com/drive/u/0/folders/1WYcW9yK0WduLeip972X9wqm9zPnpPWX8)
+![Image](https://drive.google.com/drive/u/0/folders/1WYcW9yK0WduLeip972X9wqm9zPnpPWX8)
+![Image](https://drive.google.com/drive/u/0/folders/1WYcW9yK0WduLeip972X9wqm9zPnpPWX8)
