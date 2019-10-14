@@ -6,5 +6,5 @@
 
 ## World of Computer
 
-![Home page](https://drive.google.com/drive/u/0/folders/1WYcW9yK0WduLeip972X9wqm9zPnpPWX8)
+![Home page](https://drive.google.com/open?id=1aMFcula0zmZWfd5EVoozzLAdc7Ye_eMR)
 
