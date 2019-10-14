@@ -6,5 +6,5 @@
 
 ## World of Computer
 
-[https://drive.google.com/drive/u/0/folders/1WYcW9yK0WduLeip972X9wqm9zPnpPWX8]
+![Screenshot](Screenshot from 2019-09-22 00-42-38.png)
 
